@@ -55,7 +55,9 @@ I am interested in building technology that can reason across complex problems, 
 
 - X: "@BilleylDinoman" (https://x.com/BilleylDinoman)
 - GitHub: "@BilalMdinoman" (https://github.com/BilalMdinoman)
-- Base: Kano, Nigeria
+- YouTube: "@BilalMDinoman" (https://youtube.com/@bilalmdinoman?si=u6Ha0447j8JeJbjT)
+- Tiktok: "@billieylmdinoman" (tiktok.com/@billieylmdinoman)
+- - - Base: Kano, Nigeria
 
 ---
 
